@@ -1,1 +1,1 @@
-"So just dont just touch the dyle and stay here a while w me" ^_^ ⌒⌒    ⛔️ = Afk l8 resp, 💬 = please interact !! 🟢 = online but iwc . 🌙= afk no resp .  most likely at spawn / Dandys world area or near the library . Only on safe server 1 & 2 . cuds are *ALWAYS* encouraged.  
+"*So just dont just touch the dyle and stay here a while w me*" ^_^ ⌒⌒    ⛔️ = Afk l8 resp, 💬 = please interact !! 🟢 = online but iwc . 🌙= afk no resp .  most likely at spawn / Dandys world area or near the library . Only on safe server 1 & 2 . cuds are *ALWAYS* encouraged.  
