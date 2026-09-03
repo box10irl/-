@@ -1,2 +1,1 @@
-"*That was great... I suppose ?*"🎶 ^_^ ⌒⌒    ⛔️ = Afk l8 resp, 💬 = please interact !! 🟢 = online but iwc . 🌙= afk no resp .  most likely at spawn / Dandys world area, near the library or w my friends <3 . Only on safe server 1 & 2 . cuds are *ALWAYS* encouraged. Do *NOT* copy nor take inspo from my skins , <3 Roblox account is 4n1m4llover if you wanna friend me :3 (maybe) ponytowns boxten 😸
-please bmf 🥹
+"*That was great... I suppose ?*"🎶 ^_^ ⌒⌒  Pt's Boxten !!  ⛔️ = Afk l8 resp, 💬 = please interact !! 🟢 = online but iwc . 🌙= afk no resp . Only on safe server 1 & 2 . cuds are *ALWAYS* encouraged. Do *NOT* copy nor take inspo from my skins
