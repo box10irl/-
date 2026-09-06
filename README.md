@@ -1,1 +1,1 @@
-"*That was great... I suppose ?*"🎶 ^_^ ⌒⌒  Pt's Boxten !!  ⛔️ = Afk l8 resp, 💬 = please interact !! 🟢 = online but iwc . 🌙= afk no resp . Only on safe server 1 & 2 . cuds are *ALWAYS* encouraged. Do *NOT* copy nor take inspo from my skins
+"*That was great... I suppose ?*"🎶 ^_^ ⌒⌒  ⛔️ = Afk l8 resp, 💬 = please interact !! 🟢 = online but iwc . 🌙= afk no resp . Only on safe server 1 & 2 .
