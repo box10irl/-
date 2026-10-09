@@ -1,0 +1,2 @@
+IWC: Boxten Yumeshipers, Roleplays, Any rude/mean ppl, ppl who are 18+ or 13- , Over The Garden Wall,  nd gravity falls haters, shrimpo kins.
+DNI: Darkshippers, Proshippers, Really rude ppl, ppl who annoy me, eg: booping me after I told them to stop.
